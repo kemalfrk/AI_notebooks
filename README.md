@@ -1,0 +1,1 @@
+- Cumhurbaşkanlığı Dijital Dönüşüm Ofisinin Dijital Yetenek Yapay Zeka Kursunda Öğrendiğim Konuları Kendim Deneyerek ve Araştırarak Yazıyorum.
